@@ -1,0 +1,1 @@
+I first tried to install a metal rot to helo secure the fan and the water bottle together, however I found that the gap that I carved on the fan will trap cat food.
